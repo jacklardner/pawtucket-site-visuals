@@ -1,0 +1,1 @@
+# pawtucket-site-visuals
